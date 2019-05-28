@@ -34,7 +34,7 @@ few insidious Copy Writers ambushed her, made her drunk with
 they abused her for their projects again and again. And if she hasn’t been
 rewritten, then they are still using her.
 
-> Far far away sample, behind the word mountains, far from the countries Vokalia and
+> Far far away sample again, behind the word mountains, far from the countries Vokalia and
 > Consonantia, there live the blind texts. Separated they live in Bookmarksgrove
 > right at the coast of the Semantics, a large language ocean.
 
